@@ -1,2 +1,2 @@
 # Vinu
-Intrested in developing h/w D
+Intrested in developing software and scientific models.
